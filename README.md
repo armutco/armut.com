@@ -1,0 +1,1 @@
+bu kodlar açık kod kaynaklı olup gelişime açıktır bu kodları geliştiren fikri suna yahya aydın beye teşekkürlerimi sunuyorum siz değerli yazılımcıların da desteklerini bekliyorum geliştirmeme yardımcı olursanız memnun kalırım şimdide sizlerede teşekkürler 
